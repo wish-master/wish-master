@@ -1,4 +1,4 @@
-### Hi there, Hellooou! 👋
+### Hi there, hellooou! 👋
 
 🔭 I’m currently working on something special!)
 
