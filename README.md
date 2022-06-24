@@ -1,4 +1,6 @@
-### Hi there 👋
+### Hi there, Hellooou! 👋
+
+🔭 I’m currently working on something special!)
 
 <!--
 **wish-master/wish-master** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
